@@ -1,64 +1,29 @@
-<div align="center">
-  
-![](https://64.media.tumblr.com/3c817a17c8d94d801fb283865a9930fb/fc0b671c9fc45565-6e/s2048x3072/5c0b5829018cddc3306224db13f57df09d60ba59.gifv)
-
-# WELCOME!
-MY NAME IS **PIXEL**
-
-I USE **THEY/IT** PRONOUNS
-
-AND THESE ARE MY PONY TOWN BOUNDARIES + SOME LITTLE TIDBITS ABOUT MYSELF!!!
-
-![](https://64.media.tumblr.com/20df0aad45340ef668601aa1b40178f5/7c318399bf42617d-02/s540x810/dd341124ad195f03365dc0c241d1110b1e28bc58.gifv)
-
 <div align="left">
-  
-**BOUNDARIES**
-
-> CUDDLING AND HIDING IS FINE WITH ME!
-
-> BOOPS MAKE ME HAPPY!
-
-> I AM OTI ALWAYS!
-
-THE ONLY REASON I'M EVER ON PONY TOWN IS FOR SOCIAL INTERACTION. PLEASE. TALK TO ME.
-
-<div align="center">
-
-![](https://64.media.tumblr.com/20df0aad45340ef668601aa1b40178f5/7c318399bf42617d-02/s540x810/dd341124ad195f03365dc0c241d1110b1e28bc58.gifv)
-
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=600&size=22&pause=1000&color=761414&multiline=true&width=435&lines=why+is+everybody" alt="Typing SVG" /></a>
 <div align="right">
-
-**ABOUT ME**
-
-I AM DIAGNOSED WITH BPD, C-PTSD, ANXIETY, AND ADHD
-
-I ENJOY ALL KINDS OF MUSIC BUT MY FAVORITES ARE EDM, INDUSTRIAL, AND METAL!
-
-I'M A BIG FAN OF LAPFOX TRAX, MONTY PYTHON, WARRIOR CATS, AND MY LIFE WITH THE THRILL KILL KULT
-
-I AM A FURRY AND AN ALTERHUMAN. I CAN BE WHATEVER I WANT AND YOU CAN TOO
-
-I FIND SEX GROSS AND I ONLY GO FOR NON-MEN. NOT SORRY.
-
-I SPEAK IN ALL CAPS. NO I'M NOT YELLING! OR MAYBE I AM! BUT IT'S ALWAYS POSITIVE!! HAPPY SCREAMS!!
-
-"PROBLEMATIC" MEDIA DOES NOT BOTHER ME. LIKE WHAT YOU LIKE AS LONG AS IT DOESN'T REFLECT YOUR MORALS REGARDING THE *REAL* WORLD.
-
-I DON'T LIKE PEOPLE WHO SHOVE THEIR RELIGION IN MY FACE. YES THIS INCLUDES SPREADING "THE GOSPEL". I DO NOT CARE. I DON'T THINK GOD LOVES ME EITHER BECAUSE HE ISN'T REAL TO ME. PLEASE STOP TELLING ME SOMEONE I DON'T BELIEVE IN LOVES ME. IT IS STRANGE.
-
-TD/TT ISN'T A REAL THING TO ME AND I BELIEVE IT'S AN EXCUSE TO START POINTLESS ARGUMENTS. I WILL RESPECT IT BUT I WILL NOT GO OUT OF MY WAY TO BE LIKE "SOWWY I TOUCHED YOUR 2D HORSE!!"
-
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=600&size=22&pause=1000&color=B51F1F&multiline=true&width=435&lines=staring+at+my+body%3F" alt="Typing SVG" /></a>
 <div align="center">
 
-![](https://64.media.tumblr.com/20df0aad45340ef668601aa1b40178f5/7c318399bf42617d-02/s540x810/dd341124ad195f03365dc0c241d1110b1e28bc58.gifv)
+󠁩
 
-AND I THINK THAT'S ALL!!
+󠁩
 
-THANK YOU FOR READING!!!
+󠁩
 
-FEEL FREE TO INTERACT!
+󠁩
 
-## BYE!
 
-![](https://64.media.tumblr.com/3c817a17c8d94d801fb283865a9930fb/fc0b671c9fc45565-6e/s2048x3072/5c0b5829018cddc3306224db13f57df09d60ba59.gifv)
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=ur0v2b0w6v4m560xekoi1wxjb&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=true&bar_color=76070b&bar_color_cover=false">
+  </a>
+</p>
+
+󠁩
+
+󠁩
+
+󠁩
+
+󠁩
+󠁩
